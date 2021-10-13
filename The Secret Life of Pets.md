@@ -1,0 +1,1 @@
+This movie shows how pets secretly behave when their owners are not around. Of course this is a fictitious animation in which multiple pets hang around and go out like if they where real people. Some of the pets get in trouble but in the end everything gets solved. I really enjoyed the movie and it was really funny.
